@@ -3,9 +3,10 @@
 ### Some things about Cari
 
 * Gender non-binary, uses female pronouns.
-* Load voice, but not as loud as many other Americans. 
+* Loud voice, but not as loud as many other Americans.  
 * Bad hearing in her right ear, so sometimes she doesn't hear correctly.  Please be patient and understanding on this.
 * Especially for a Californian, can be very direct.   She has good intentions.  If you have questions about what was said or its meaning, please ask.
+* Cari has an over-developed sense of responsibility and will try hard not to let you down. Ever.
 
 ### Favourite topics
 
